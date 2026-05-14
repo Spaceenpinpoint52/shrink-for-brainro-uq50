@@ -1,4 +1,4 @@
-#  
+#  stealth Scripts for shrink for brainrots offers the most advanced shrink for brainrots Script, with one-hit kill and esp. Perfect for dominating any
 
 
 
